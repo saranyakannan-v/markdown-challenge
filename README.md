@@ -27,7 +27,7 @@ Hobbies
   * Veg
   * Non-Veg
   
-You can always count on me when feel stressed
+You can always count on me when you feel stressed
 ---------------------------------------------
 
 Develop a team mentality. Think "we," not "me.
